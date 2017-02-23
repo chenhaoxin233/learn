@@ -1,2 +1,2 @@
-# learn you master !
+# learn you master ! Python is the best !
 
